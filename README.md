@@ -1,2 +1,0 @@
-# MIftahul-Huda
-university
